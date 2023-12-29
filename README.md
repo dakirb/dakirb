@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @dakirb
-- 👀 I’m interested in tech, Gmod, content creation, Material Design, drawing and more!
+- 👀 I’m interested in tech, Gmod, Nintendo, content creation, Material Design, drawing and more!
 - 📫 I have all my links on bento! (https://bento.me/dakirb)
 
 <!---
