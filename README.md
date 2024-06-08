@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dakirb
 - 👀 I’m interested in tech, Gmod, Nintendo, content creation, Material Design, drawing and more!
-- 📫 I have all my links on bento! (https://bento.me/dakirb)
+- 📫 I have all my links on linktree: **https://linktr.ee/dakirb**
 
 <!---
 dakirb/dakirb is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
